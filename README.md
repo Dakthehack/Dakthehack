@@ -22,7 +22,7 @@ As more companies move toward decentralized systems, I hope to help bridge the g
 - Big fan of the outdoors — motorcycles 🏍️, biking 🚴‍♂️, hiking 🥾, fishing 🎣  
 - Dogs 🐶 > Cats 🐱  
 - Enjoy gaming 🎮 and reading fantasy 📚  
-- Love watching TV shows with my wife ❤️📺
+- Love watching TV shows with the wife ❤️📺
 
 If you're working on something in the Web3 security space — or just want to connect — feel free to reach out. 
 
